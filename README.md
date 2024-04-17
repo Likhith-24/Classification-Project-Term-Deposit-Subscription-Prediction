@@ -64,7 +64,7 @@ Embark on this thrilling journey to build a powerful classification model that p
 
 - 📫 How to reach me **v.likhith.01@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ZfhrFsnmvAUpZWeRfY2-aCY2uCq4Aty4/view?usp=drive_link](https://drive.google.com/file/d/1ZfhrFsnmvAUpZWeRfY2-aCY2uCq4Aty4/view?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1DiQ2ocpqxEab2rEXiaODP2Osyjn5dp0V/view?usp=sharing)
 
 - ⚡ Fun fact **I may have some sense of humour. I will have more convos if you start about Marvel, DC, Tech-Stuff**
 
